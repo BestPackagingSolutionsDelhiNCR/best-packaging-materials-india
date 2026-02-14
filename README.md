@@ -6,11 +6,11 @@ TRS Industries LLP is a trusted packaging material manufacturer in Noida offerin
 
 TRS Industries LLP specializes in manufacturing innovative and protective packaging materials designed to protect fragile and valuable products. Our solutions are ideal for eCommerce, electronics, automotive, and logistics industries.
 
-🌐 Visit Website:  
-https://trsindustriesllp.com/packaging-material-manufacturer-in-noida/
+🌐 **Visit Website:**  
+[Packaging Material Manufacturer in Noida](https://trsindustriesllp.com/packaging-material-manufacturer-in-noida/)
 
-📘 Packaging Guide:  
-https://trsindustriesllp.com/choose-right-packaging-material/
+📘 **Packaging Guide:**  
+[Choose the Right Packaging Material](https://trsindustriesllp.com/choose-right-packaging-material/)
 
 ## Our Packaging Products
 
@@ -29,22 +29,12 @@ https://trsindustriesllp.com/choose-right-packaging-material/
 - Cost-Effective and Sustainable Packaging Solutions  
 - Customized Packaging as per Product Requirements  
 
-## Connect With Us
-
-Facebook:  
-https://www.facebook.com/people/TRS-Industries/61559023414842/
-
-Instagram:  
-https://www.instagram.com/trsindustriesllp2017/
-
-YouTube:  
-https://www.youtube.com/channel/UCPQkP06UB5qxCiNdwQLQ2Aw
-
-LinkedIn:  
-https://www.linkedin.com/company/trs-industries-llp/
-
-Twitter (X):  
-https://x.com/trsindustries
+## 🌐 Connect With Us
+- [Facebook](https://www.facebook.com/people/TRS-Industries/61559023414842/)
+- [Instagram](https://www.instagram.com/trsindustriesllp2017/)
+- [YouTube](https://www.youtube.com/channel/UCPQkP06UB5qxCiNdwQLQ2Aw)
+- [LinkedIn](https://www.linkedin.com/company/trs-industries-llp/)
+- [Twitter / X](https://x.com/trsindustries)
 
 ## Keywords Targeted
 
